@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Marya373
+- 👋 Hi, I’m @ Marya 373
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning MAC
 
